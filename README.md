@@ -69,7 +69,7 @@ Edited videos for a YouTube channel, working with structure, dialogue, sound, co
 
 ## Selected work and client projects
 
-More examples are available in the [portfolio](https://rodioncuts.github.io):
+More examples are available in the [portfolio](https://radionvideoediting.github.io/):
 
 - YouTube long-form videos
 - Talking-head and creator content
