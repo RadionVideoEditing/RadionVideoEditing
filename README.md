@@ -7,7 +7,7 @@ I help experts and creators turn raw footage into clear, engaging videos with st
 
 **Remote video editing · DaVinci Resolve Studio · Ukraine / worldwide**
 
-[View portfolio](https://rodioncuts.github.io) · [Contact me on Telegram](https://t.me/Radion_1273) · [Email me](mailto:kucernukrodion@gmail.com)
+[View portfolio](https://radionvideoediting.github.io/) · [Contact me on Telegram](https://t.me/Radion_1273) · [Email me](mailto:kucernukrodion@gmail.com)
 
 ---
 
